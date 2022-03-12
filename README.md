@@ -6,6 +6,12 @@ Visit our main [Learn Teochew](https://learn-teochew.github.io) website for more
 
 Please [contact me](https://docs.google.com/forms/d/e/1FAIpQLSfuLo78EgRtgVeoEb1zTXZOtb0W0cBWdrNu46CYtkLaVwhlZQ/viewform) (or create an issue on GitHub) if you know of any other sources!
 
+## License
+
+To the best of our knowledge, the original works listed below are in the public domain. However, the digitizations (scans, digital images) may be under copyright; please consult individual webpages for the relevant terms. 
+
+Text transcriptions in this repository are licensed under [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/).
+
 ## Old Testament
 
 Genesis
@@ -34,6 +40,7 @@ Jonah
 * *Kū-ieh Iak-ná tsṳ : e̍k tsò Tiê-chiu Pe̍h-ūe.* Sùan-thâu : Lói-pài-tn̂g Hông-soh-hṳn ìn. 1888. Transliterated by John Campbell Gibson. 
   * [Harvard Yenching Library Ta 1977.492 CW1888](https://nrs.lib.harvard.edu/urn-3:fhcl:32647785)
   * [FHL.net (digitized by Dr Kenny Wang, original in National Library of Australia)](https://bible.fhl.net/gbdoc/ob/nob.html?book=204)
+  * [Text transcription](./jonah_1888.md)
 
 
 Haggai to Malachi
