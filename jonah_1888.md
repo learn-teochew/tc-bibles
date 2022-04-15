@@ -1,5 +1,15 @@
 ---
-source-url: https://nrs.lib.harvard.edu/urn-3:fhcl:32647785
+digitization-url: https://nrs.lib.harvard.edu/urn-3:fhcl:32647785
+digitization-attribution: Harvard Library
+digitization-license: http://nrs.harvard.edu/urn-3:hul.ois:hlviewerterms
+transcription-license: https://creativecommons.org/licenses/by/4.0/
+transcription-attribution: Brandon Seah (https://learn-teochew.github.io)
+metadata-fields: # explanation of fields in this YAML header
+  digitization-url: URL for digital scan of source that was consulted to make the text transcription
+  digitization-license: License for digital scan images (not the source text itself)
+  digitization-attribution: Creator or publisher of digital scan who has released the scan under above license
+  transcription-license: License for transcription of the source (text only, not the images), i.e. this document
+  transcription-attribution: Creator or publisher of the text transcription
 ---
 
 # Kū-ieh Iak-ná tsṳ : e̍k tsò Tiê-chiu pe̍h-uē

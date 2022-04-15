@@ -1,5 +1,5 @@
 ---
-source-url: https://nrs.lib.harvard.edu/urn-3:fhcl:32723208
+digitization-url: https://nrs.lib.harvard.edu/urn-3:fhcl:32723208
 ---
 
 # Sin-ieh Má-Thài Hok-im-tsṳ
