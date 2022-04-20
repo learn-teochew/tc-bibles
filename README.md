@@ -74,3 +74,11 @@ Philippians to Philemon • 腓立比書 至 腓利門書
 
 * *Sài-thû Páu-lô só-kìa kâi tsṳ-sìn Hui-lìp-pí chì Hui-lī-mn̂g poih-phien : e̍k-tsò Tiê-chiu Pe̍h-ūe phoi-ũ Tshuàn-tsu.* Sùaⁿ-thâu : Lói-pai-tn̂g, Hông-soh-hṳn ìn. 1894. (PUJ romanization)
   * [FHL.net (digitized by Dr Kenny Wang, original in National Library of Australia)](https://bible.fhl.net/gbdoc/ob/nob.html?book=126)
+
+
+## Audio recordings
+
+NB: The recordings below are not the same versions as the texts above.
+
+ * https://listen.talkingbibles.org/zh/language/nan-cha
+ * http://www.tstscc.org/church-activities1/潮語聖經.html
