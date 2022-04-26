@@ -341,7 +341,43 @@ Tng hẃ-che|k-ji|t Iâ-sou tshông tshù-lãi tshut--khẁ tsõ tõ hái-kî^. 
 
 [31] Iâ-sou iũ siet kâi phì-zũ tùi-in tà^, Thien-kok sĩ chhin-chhiẽ^ che|k-lia|p kài-lua|h-chéng, nâng khie|h--lâi iā tõ i-kâi-tshân; [32] chiá sĩ sòi--kùe peh-iē^ kâi chéng-chí; ki|p-kàu se^-chiáng, chiũ tūa--kùe kak-iē^ kâi tshài, huat-chiâ^-chhiū, sái-kàu thi^--tang kâi pue-chiáu lâi chhi-hiah tõ i-kâi-ki.
 
-[33] 
+[33] Iâ-sou iũ siet kâi phì-zũ tùi-in tà^; Thien-kok sĩ chhin-chhiẽ^ kà^-bó, che|k-kâi hũ-jîn khie|h--lâi lo|h tõ sa^-táu-mī^ hẃ-tói, tì-kàu lóng-tsóng huat-kà^.
+
+[34] Chí tsùa^-kâi-sw̄ Iâ-sou ēng phì-zũ lâi tùi chèng-nâng tà^--kâi; bô-m̄-sĩ ēng phì-zũ lâi tùi-in tà^-ūe; [35] lâi èng-ngiām thoh soi^-tsai-nâng só-tà^ kâi ūe, sĩ tà^,
+
+> Uá ài^ khui-tshùi lâi-siet phì-zũ;
+>
+> Tsw̃ tshàng-sì í^-lâi só ẃn-tshâng--kâi ài^ huat-mêng tshut--lâi.
+
+[36] Aũ--liáu Iâ-sou lī-khui chèng-nâng, ji|p--khẁ tshù-lãi: I chèng-mn̂g-thû kiâ^-bûa lâi tà^, Chí-kâi tshân-phōi^ kâi phì-zũ chhiá^ kāng-ún kói-mêng. [37] Iâ-sou chiũ ìn--tà^, Iā hó-chéng--kâi chiũ-sĩ Jîn-tsẃ; [38] tshân chiũ-sĩ sì-kài; múi-chéng chiũ-sĩ thien-kok kâi tsẃ-mîn; phōi^ chiũ-sĩ mô-kúi: siu-tang kâi sî-hāu chiũ-sĩ sì-kài kâi mua|t-ji|t; siu-kuah--kâi chiũ-sĩ thien-sài. [40] Chhin-chhiẽ^ phōi^ siu-si|p-bûa chiũ lâi sie-húe, tõ sì-kài kâi kat-ke|k pit-tiā^ iā sĩ chiè^-se^. [41] Jîn-tsẃ chiang-ài^ sái I kâi sài-chiá, tshông-tõ I-kâi kok--tang siu-si|p che|k-khài hām-hāi nâng tõ tsũe, [42] kũa kiâ^ put-ngĩ kâi nâng, lâi ka|k-lo|h húe-lôu, tõ hẃ-kò ũ ai-khàu kã-khí. [43] Hẃ-sî ngĩ-jîn tõ in-kâi Pẽ kâi kok chiũ kuang-iãu zû ji|t. Ũ hĩ^ kâi nâng chiũ tie|h-thia^. 
+
+[44] Thien-kok sĩ chhin-chhiẽ^ tshâi-pó khǹg tõ tshân; che|k-kâi-nâng ngõ--tie|h chiũ khǹg-bûa; hua^-hí chiũ khẁ bōi-tiāu huâm só-ũ--kâi lâi bói chí-kâi-tshân.
+
+[45] Thien-kok iũ sĩ chhin-chhiẽ^ tsò siang-kheh kâi nâng tõ tshūe múi-tsu: [46] ngõ--tie|h che|k-lia|p chì-ta|t-chî^--kâi, chiũ khẁ bōi-tiāu só-ũ kâi mue|h, lâi-bói chí che|k-lia|p-tsu.
+
+[47] Thien-kok iũ sĩ chhin-chhiẽ^ mãng pha tõ hái, tsũ-chi|p kak-lūi: í^-keng múa^--liáu, chiũ thua chiẽ^-phiâ^--lâi; [48] nâng tsõ--lo|h-khẁ, to|h chí-kâi hó--kâi lo|h khì-kũ, m̄-hó--kâi chiũ ka|k-tiāu tõ-gūa. [49] Sì-kài kâi kat-ke|k iā sĩ chiè^-se^: thien-sài chiang-ài^ tshut--lâi, tõ ngĩ-jîn tsw-tang lâi-pie|t-tshut ak-nâng, ka|k in lo|h húe-lôu: [50] tõ-hẃ-kò ũ ai-khàu kã-khí.
+
+[51] Chí tsùa^-kâi-sw̄ nín ũ lóng-tsóng hiáu-ngõ, mé? In ìn--tà^, Ũ. [52] Iâ-sou chiũ tùi-in tà^, Kù-tshẃ huâm ũ ha|k-si|p thien-kok tõ-lí kâi sin-se^, sĩ chhin-chhiẽ^ tsò ke-tsú kâi nâng, tshông tõ i-kâi khòu-pâng huat-tshut sin-kū kâi mue|h.
+
+[53] Kàu Iâ-sou tà^-uân chí-tsùa^-kâi phì-zũ I chiũ lī-khui hẃ-kâi tī-ūi. [54] Kàu I ka-kī kâi tī-hng chiũ tõ in-kâi hũe-tn̂g kà-hùe nâng, tì-kàu chèng-nâng khî-ĩ, chiũ tà^, Chí-kâi-nâng tshông-tî-kò tit chí-kâi tì-hũi kũa chí-kâi ĩ-lêng, né? [55] Chí-kâi khá-m̄-sĩ hẃ-kâi ba|k-kang kâi kiá^, hó^? I-kâi a-bó khá-m̄-sĩ miâ^ tsò Má-lĩ-a? I kâi hia^-tĩ, khá-m̄-sĩ Iá-kok, Iak-sek, Si-mn̂g, Iû-tã? [56] I kâi ché-mūe khá-m̄-sĩ lóng-tsóng kāng-nán tsò-pû tõ chí-kò? Chiè^-se^ chí-kâi-nâng sĩ tshông-tî-kò tit chí tsùa^-kâi-sw̄. [57] In ũi-tie|h Iâ-sou chiũ iàm-sim tsó-thì. Iâ-sou chiũ tùi-in tà^, Soi^-tsai-nâng, jia|k-m̄-sĩ tõ ka-kī kâi tī, ka-kī kâi ke, bô-m̄ tit nâng tsun-kèng. [58] Iâ-sou kiâ^ ĩ-lêng tõ-hẃ-kò bô-mih-tsōi, uân-khî nâng m̄-sièn kâi uân-kù.
+
+## 14
+
+Tõ hẃ-kâi sî-hāu hun-hong kâi kun-uâng Hi-lu|t zẃ-bûn Iâ-sou kâi miâ^-sia^, chiũ tùi i-kâi-chhîn tà^, [2] Chí-kâi sĩ Si-sói Iak-hân; sí-liáu ho|k-ua|h: kù-tshẃ chí-kâi ĩ-lêng kiâ^ tõ i-kò lâi.
+
+[3] Uân-khî tng-tsho, Hi-lu|t ũ lia|h Iak-hân, khún-pa|k i, siu-kìm tõ kam, chiũ-sĩ ũi-tie|h i hia^-tĩ Hui-le|k kâi chhi Hi-lô-tí kâi sw̄. [4] In-ũi Iak-hân pat tùi Hi-lu|t tà^, Lẃ siu-na|p chí-kâi-hũ sĩ m̄-ha|h-ngî. [5] Hi-lu|t ài^-suah i, tãn-sĩ ùi-kũ chèng-nâng, in-ũi chèng-nâng sĩ thói^ Iak-hân tsò soi^-tsai-nâng. [6] Tú-ngõ Hi-lu|t tsò se^-ji|t, Hi-lô-tí kâi nńg-tsẃ ko-bú tõ sia|h-tsôi^, sái-kàu Hi-lu|t hua^-hí. [7] In-tshẃ Hi-lu|t huat-sī, èng-hẃ i put-lũn só-khiû--kâi chiũ ài^ sẁ-pun i. [8] I pun i-kâi a-bó só kà-so, chiũ tà^, Chhiá^ chiang Si-sói Iak-hân kâi thâu, pàng pûa^-téng tõ-chí-kò sẁ-pun uá. [9] Kun-uâng sĩ huân-ló; nā-sĩ í^-keng huat-sī--liáu, iũ-chhiá^ ũi-tie|h tâng-sia|h kâi nâng tõ--kò, chiũ hun-hù tie|h sẁ-pun i; [10] sái nâng khẁ kam-lãi tsám Iak-hân kâi thâu. [11] Tshō i-kâi-thâu tõ pûa^-téng khâng lâi sẁ-pun nńg-tsẃ: nńg-tsẃ chiũ khâng lâi pun i-kâi a-bó. [12] I-kâi mn̂g-thû lâi tshú i-kâi sin-si khẁ-tsǹg; liáu chiũ lâi kàu-tsai Iâ-sou.
+
+[13] Iâ-sou thia^--tie|h chiũ chiẽ^-tsûn lī-khui hẃ-kò, ka-kī khẁ tõ khuàng-iá kâi tī-hng: tãi-chèng-ke thia^-tsai chiũ tshông-tõ kak siâ^-ip pōu-kiâ^ khẁ-tùe I.
+
+[14] Iâ-sou tshut--lâi thói^-kì^ che|k tūa-khûn-nâng, chiũ liên-mién in, ũ-pē^--kâi chiũ kāng-in ui. [15] Ji|t há^-àm--liáu, mn̂g-thû kiâ^-bûa tùi Iâ-sou tà^, Chí-kò sĩ khuàng-iá, sî-hāu í^-keng kùe-uà^--liáu: chhiá^ sùa^-khui tãi-chèng-ke, sái in lo|h-hie^ bói-chia|h. [16] Iâ-sou tùi-in tà^, In mín-ēng khẁ, nín khie|h pun in chia|h chiũ hó. [17] Mn̂g-thû ìn--tà^, Uń tõ-chí-kò put-kùe ũ ngõu-kò-piá^ kũa nõ-búe-hŵ tiā^-tiā^. [18] Iâ-sou tà^, Khie|h--lâi uá chí-kò. [19] Iâ-sou chiũ mẽng tãi-chèng-ke tsõ--pàng tsháu-pou; chiũ khie|h hẃ ngõu-kò-piá^ kũa nõ-búe-hŵ, ngiáng-thi^, táu-tsok liáu chiũ peh-phùa, khie|h-piá^ pun mn̂g-thû, mn̂g-thû khie|h pun tãi-chèng-ke. [20] Lóng-tsóng chia|h kàu-pá: chia|h-tshûn hẃ-tshoh tshùi-tshùi--kâi to|h-khí-lâi tsa|p-jī-kheng tĩ^-tĩ^. [21] Chia|h kâi nâng, hũ-jîn sòi-kiá^ mài-sǹg, tãi-iak ũ ngõu-tshoi^ nâng.
+
+[22] Iâ-sou sûi-chiet tshui-tshok I kâi mn̂g-thû chiẽ^-tsûn, soi^ kùe hiè^-pôi^, thãi-kàu I sùa^-khui tãi-chèng-ke. [23] Iâ-sou í^-keng sùa^-khui tãi-chèng-ke liáu chiũ ka-kī chiẽ^-sua^ khî-táu: ji|t àm--liáu tua^-tua^ ka-kī tõ-hẃ-kò. [24] Hẃ-chiah-tsûn ta^ tõ hái tìn-tang, pun tsúi-éng iâu-pùa, in-ũi sĩ nge|k-huang. [25] Hẃ-mê sì-ke^ kâi sî-hāu Iâ-sou kiâ^ tõ hái-mīn chiũ huâng-khióng, tà^, Sĩ kuài-mue|h a; chiũ kia^ kàu tõ hàm-kiè. [27] Iâ-sou sûi-chiet chiũ tùi-in tà^, Nín ua^-sim; sĩ uá; nín mín-ēng kia^. [28] Pí-tit ìn--tà^, Tsú a, zû-kuá^ sĩ lẃ chiũ hó mẽng uá kiâ^ tõ tsúi-mīn lâi-chiũ lẃ. [29] Iâ-sou tà^, Lâi. Pí-tit chiũ tshông-tõ tsûn lo|h--khẁ, kiâ^ tõ tsúi-mīn lâi-chiũ Iâ-sou. [30] Tãn-sĩ thói^-kì^ hẃ-kâi huang chiũ kia^-kũ; ki-ki tîm--lo|h-khẁ, chiũ u-hàm--tà^, Tsú a, kiù uá. [31] Iâ-sou sûi-chiet tshun-chhiú lĩm-kín i, kāng-i tà^, Sié-sìn kâi nâng a, tsò-nî gî, né? [32] In che|k-ē chiẽ^-tsûn huang chiũ tiām. Tsûn-tói kâi nâng pài Iâ-sou, chiũ tà^, [33] Lẃ chin-chin sĩ Siãng-tì kâi Kiá^.
+
+[34] Í^-keng kùe hiè^-pôi^--liáu chiũ kàu Kek-nî-sat-le|k uá-sua^. [35] Hẃ-kâi tī-hng kâi nâng che|k-ē jīn--tie|h I, chiũ thuân kàu sì-ûi kâi tī-hng, ũ-pē^ kâi nâng lóng-tsóng tùa lâi-chiũ I; [36] khiû Iâ-sou tua^-tua^ kâi sa^-kw iông in mông--tie|h: mông--tie|h kâi nâng che|k-khài tit tshuân-zú.
+
+## 15
+
+
 
 # Má-khó Hok-im-tsṳ.
 
