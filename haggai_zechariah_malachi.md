@@ -56,3 +56,9 @@ Buān-khûn kâi Tsú Iâ-hô-hûa chièⁿ-seⁿ tàⁿ, Uá ũi-tie̍h Iâ-lũ
 
 ## 2
 
+Uá iũ tièⁿ-phû uá-ma̍k chiũ thóiⁿ, thóiⁿ-kìⁿ che̍k-kâi nâng, chhiú--tang khie̍h niêⁿ-tī kâi sîn-soh. [2] Uá chiũ tàⁿ, Lṳ́ àiⁿ-khṳ̀ tî-kò? I tùi-uá tàⁿ, Aìⁿ-niêⁿ Iâ-lũ-sat-léng, lâi-thóiⁿ ũ jie̍h-khuah, ũ jie̍h-tn̂g. [3] Iáu, kāng-uá tàⁿ-ūe kâi sài-chiá chiũ tshut--khṳ̀, iā ũ ke che̍k-kâi sài-chiá tshut--lâi ngêng i, [4] chiũ kāng-i tàⁿ, Tie̍h tsáu-khṳ̀ kāng chí-kâi siàu-nîⁿ-nâng tàⁿ-ūe, tàⁿ,
+
+Chiang-lâi nâng àiⁿ khiã-khí Iâ-lũ-sat-léng, chhin-chhiẽⁿ tõ hieⁿ-tshng hièⁿ-seⁿ, ũi-tie̍h khî-tang kâi nâng siàu kũa cheng-seⁿ chièⁿ-tsōi. [5] In-ũi uá àiⁿ tsò i sì-chiu-ûi kâi hú-chhiêⁿ, uá iā àiⁿ tsò i lãi--tang kâi iông-kuang, sĩ Iâ-hô-hûa só-tàⁿ. [6] Iâ-hô-hûa tàⁿ, Hói! hói! tie̍h tshông-tõ pak-hng tsáu--tshut-lâi, in-ũi uá ũ hun-sùaⁿ nín chhin-chhiẽⁿ thiⁿ-tang kâi sì-huang, sĩ Iâ-hô-hûa só-tàⁿ. [7] Hói! Sûn-siâⁿ a! lṳ́ kāng Pa-pí-lûn kâi nńg-tsṳ́ tsò-pû khiã-khí kâi, lṳ́ tie̍h tô-tsáu. [8] In-ũi buān-khûn kâi Tsú Iâ-hô-hûa chièⁿ-seⁿ tàⁿ, Sĩ àiⁿ tit iông-kuang I chiàⁿ-ũ sái uá khṳ̀-kàu chhiéⁿ nín hṳ́ hùaⁿ-kâi lie̍t-pang; in-ũi huâm tî-tiâng tiaⁿ-thãng--tie̍h nín, chiũ-sĩ tiaⁿ-thãng--tie̍h i-kâi ma̍k-jîn. [9] In-ũi uá àiⁿ ia̍h-chhiú tõ in tsṳ-chiēⁿ, in chiũ pit pun tsá ho̍k-sṳ̃ in kâi nâng só-chhiéⁿ: nín chiũ tsai sĩ buān-khûn kâi Tsú Iâ-hô-hûa ũ-sái uá. [10] Iâ-hô-hûa tàⁿ, Sûn kâi nńg-tsṳ́ a, lṳ́ tie̍h chhiàng-ko hí-la̍k; in-ũi uá lâi, iũ àiⁿ khiã-khí tõ lṳ́--tang. [11] Hṳ́-ji̍t iā pit-ũ ke-ke lie̍t-pang lâi tâu-hâng Iâ-hô-hûa, chiũ tsò uá-kâi peh-sèⁿ: uá iā pit àiⁿ khiã-khí tõ lṳ́--tang, lṳ́ chiũ tsai sĩ buān-khûn kâi Tsú Iâ-hô-hûa ũ-sái uá lâi lṳ́-kò. [12] Iâ-hô-hûa iā pit àiⁿ chiang Iû-tã tõ siàⁿ-tī tsṳ-tang tsò I hūn-tsôiⁿ kâi ngia̍p, iā pit tsài-suán Iâ-lũ-sat-léng. [13] Nín huâm ũ hueh-ne̍k--chiá, tie̍h sok-chẽⁿ tõ Iâ-hô-hûa mīn-tsôiⁿ: uân-in I tshông-tõ I siàⁿ-kiet kâi kṳ-só tsṳ--tang ũ chhéⁿ-khí--lâi liáu.
+
+## 3
+
