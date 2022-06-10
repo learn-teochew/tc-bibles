@@ -62,3 +62,13 @@ Chiang-lâi nâng àiⁿ khiã-khí Iâ-lũ-sat-léng, chhin-chhiẽⁿ tõ hie�
 
 ## 3
 
+I chiū pun uá thóiⁿ chì-si-chiáng Iak-su-a khiā tõ Tsú kâi sài-chiá mīn-tsôiⁿ, kũa Sat-tãn khiã tõ i-kâi iũ-pôiⁿ lâi tùi-te̍k i. [2] Iâ-hô-hûa chiũ tùi Sat-tãn tàⁿ, Sat-tãn a, nguãn Iâ-hô-hûa cheh-pĩ lṳ́; chiũ-sĩ suán Iâ-lũ-sat-léng kâi Iâ-hô-hûa, nguãn I cheh-pĩ lṳ́: chí-kâi khá-m̄-sĩ che̍k-ki tshâ-chin tshông-tõ húe--tang po̍ih--tshut-lâi?
+
+[3] Iáu, Iak-su-a sĩ chhēng u-ùe kâi i-ho̍k, chiũ khiã tõ sài-chiá mīn-tsôiⁿ. [4] I chiũ tùi hṳ́-hùaⁿ khiã tõ i mīn-tsôiⁿ chiá tap-tàⁿ, Nín tie̍h kāng-i thǹg-tiāu chí tsùaⁿ u-ùe kâi i-ho̍k. Iũ tùi Iak-su-a tàⁿ, Lṳ́ thóiⁿ, lṳ́-kâi tsũe-ak uá ũ kāng lṳ́ khṳ́-tiāu, uá iā àiⁿ kāng-lṳ́ chhēng ngiá kâi i-ho̍k. [5] Uá chiũ tàⁿ, In tie̍h chiang kiet-chẽng kâi thâu-pòu phuân tõ i-kâi thâu-chiēⁿ. In chiũ chiang kiet-chẽng kâi thâu-pòu phuân tõ i-kâi thâu-chiēⁿ, kũa kāng-i chhēng i-ho̍k; Iâ-hô-hûa kâi sài-chiá iā khiã tõ-kò. [6] Iâ-hô-hûa kâi sài-chiá chiũ tùi Iak-su-a chèng-kṳ̃, tàⁿ, [7] Buān-khûn kâi Tsú Iâ-hô-hûa chièⁿ-seⁿ tàⁿ;
+
+Lṳ́ jia̍k-sĩ kiâⁿ tõ uá-kâi lōu, iũ siú uá só hun-hù siú kâi, lṳ́ iā chiũ pit kuán-lí uá-kâi tshù, thóiⁿ-siú uá-kâi tōiⁿ-tiâⁿ; uá iā àiⁿ sṳ̀ lṳ́ hó tshut-ji̍p tõ chí tsùaⁿ tõ-khiã--chiá tsṳ-tang. [8] Chì-si-chiáng Iak-su-a! lṳ́ tie̍h-thiaⁿ, lṳ́ kũa in tsõ tõ lṳ́ mīn-tsôiⁿ kâi tâng-phũaⁿ; in-ũi chí tsùaⁿ-nâng sĩ tsò ki-tiãu kâi nâng: uân-in uá àiⁿ ín-tshut uá-kâi po̍k, chiũ-sĩ kiè-tsò Gê-sún. [9] In-ũi lṳ́ thóiⁿ, lũn uá tõ Iak-su-a mīn-tsôiⁿ só-li̍p kâi chie̍h; tõ che̍k-kò chie̍h ũ chhit-kâi ma̍k: buān-khûn kâi Tsú Iâ-hô-hûa tàⁿ, Uá pit àiⁿ tiau-khek chie̍h-chiēⁿ só tiau-khek kâi, hṳ́-kâi tī kâi ak, uá iā tõ che̍k-ji̍t tsṳ-kan chiũ àiⁿ tŵ-tiāu.
+
+[10] Buān-khûn kâi Tsú Iâ-hô-hûa tàⁿ, Tõ hṳ́-ji̍t nín kak-nâng pit àiⁿ chhiáⁿ i-kâi tshù-piⁿ, tõ phû-thô kũa bô-hue-kúeⁿ kâi chhiū-ẽ.
+
+## 4
+
