@@ -72,3 +72,13 @@ Lṳ́ jia̍k-sĩ kiâⁿ tõ uá-kâi lōu, iũ siú uá só hun-hù siú kâi,
 
 ## 4
 
+Kāng-uá tàⁿ-ūe kâi sài-chiá tsài-lâi, chiũ kiah-chhéⁿ uá, chhin-chhiẽⁿ nâng u̍t--khṳ̀ pun nâng kiah-chhéⁿ hièⁿ-seⁿ. [2] I chiũ tùi-uá tàⁿ, Lṳ́ thóiⁿ-kìⁿ sĩ-mih kâi né? Uá chiũ tàⁿ, Uá ũ thóiⁿ, thóiⁿ-kìⁿ che̍k-kâi teng-chhiū, tsn̂g-kâi sĩ kim kâi, kũa i-kâi teng-tsúaⁿ tõ i hṳ́-téng, kũa ũ chhit-kâi teng tõ i hṳ́-chiēⁿ; i hṳ́-téng kâi teng kak-kak ũ chhit-ki kńg: [3] kũa tõ hṳ́-piⁿ ũ nõ-tsâng kaⁿ-náⁿ chhiū, che̍k-tsâng tõ teng-tsúaⁿ kâi iũ-pôiⁿ, che̍k-tsâng tõ i-kâi tsó-pôiⁿ. [4] Uá chiũ tùi kāng-uá tàⁿ-ūe kâi sài-chiá tàⁿ, Uá tsú a, chí tsùaⁿ-kâi sī sī-mih kâi né? [5] Kāng-uá tàⁿ-ūe kâi sài-chiá chiũ tùi-uá tap-tàⁿ, Lṳ́ khá-m̄-tsai chí tsùaⁿ-kâi sĩ sĩ-mih kâi né? [6] Uá chiũ tàⁿ, Uá-tsú a, uá m̄-tsai. I chiũ tùi-uá tap-tàⁿ, Chí-kâi chiũ-sĩ Iâ-hô-hûa só-tàⁿ pun Só-lô-pa-pek kâi ūe, sĩ tàⁿ,
+
+Buān-khûn kâi Tsú Iâ-hô-hûa tàⁿ, M̄-sĩ tshut-tõ khuân iā m̄-sĩ tshut-tõ la̍t, zûi-s̃i tshut-tõ uá-kâi sîn. [7] Tūa-suaⁿ a, lṳ́ sĩ tî-tiâng, né? tõ Só-lô-pa-pek kâi mīn-tsôiⁿ lṳ́ pit pìⁿ-tsò pêⁿ-pou: i chiũ pit puaⁿ tshù-thâu kâi chie̍h tshut--lâi, chiũ ũ háu-hiàm kâi siaⁿ tàⁿ, Ṳn-tién! Nguãn i tit ṳn-tién.
+
+[8] Siãng-chhiáⁿ Iâ-hô-hûa kâi ūe iā thoh uá, tàⁿ, [9] Só-lô-pa-pek kâi chhiú ũ pàng chí-kâi tshù kâi tī-kha; i-kâi chhiú iā chiũ pit tsò-chiâⁿ; lṳ́ chiũ tsai sĩ buān-khûn kâi Tsú Iâ-hô-hûa ũ sái uá lâi nín-kò. [10] In-ũi sĩ tî-tîang ũ thóiⁿ-khin sié-sṳ̄ kâi sî-ji̍t, né? in-ũi in chiang-àiⁿ hí-la̍k, iā àiⁿ thóiⁿ-kìⁿ tūi-tô tõ Só-lô-pa-pek kâi chhiú; chiũ-sĩ chí chhit-kâi, sĩ Iâ-hô-hûa chhit-kâi ma̍k, pìn-tshat tshuân-tī kâi.
+
+[11] Uá chiũ tùi-i tàⁿ, Teng-chhiū tsó-iũ chí nõ-tsâng kaⁿ-náⁿ-chhiū sĩ sĩ-mih kâi né? [12] Uá tōiⁿ-jī tshṳ̀ iũ tùi-i tàⁿ, Nõ-kâi kim kńg-tshùi tshông-tõ i lãi--tang tò-tshut kim-iû, tõ i-kâi piⁿ--thâu chí nõ-ki kaⁿ-náⁿ chhiū-ki sĩ sĩ-mih kâi né? [13] I chiũ tùi-uá tàⁿ, Lṳ́ khá m̄-tsai chí nõ-kâi sĩ sĩ-mih kâi né? Uá chiũ tàⁿ, Uá-tsú, uá m̄-tsai. [14] I chiũ tàⁿ, Chí-kâi sĩ nõ-kâi tò-iû chiá, sĩ khiã tõ tshuân-tī kâi Tsú kâi phâng-piⁿ kâi.
+
+## 5
+
