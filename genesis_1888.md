@@ -575,7 +575,7 @@ Iâ-hô-hûa tùi A-pek-lân tàⁿ, Lṳ́ tie̍h lī-khui lṳ́-kâi 
 
 [8] Tshông tõ-hṳ́-kò súa-khui kàu Pek-tek-lĩ tang-pôiⁿ kâi suaⁿ, chiũ nêⁿ pòu-phâng; sai-pôiⁿ sĩ Pek-tek-lĩ, tang-pôiⁿ sĩ Hâi; tõ-hṳ́-kò ũi-tie̍h Iâ-hô-hûa khí-tûaⁿ, u-khiû Iâ-hô-hûa kâi miâⁿ.
 <!-- 第 42 页 -->
-[9] A-pek-lân iũ kiâⁿ, chhiâu-kiâⁿ chhiâu-kṳ̂n nâm-hng khṳ̀.
+[9] A-pek-lân iũ kiâⁿ, chhiâu-kiâⁿ chhiâu-kṳ̃n nâm-hng khṳ̀.
 <!-- 注：chhiâu...chhiâu... 对应现今汕头市区常用用法。 -->
 
 [10] Tõ hṳ́-kâi-tī ũ ki-hng, A-pek-lân chiũ lo̍h Ai-ki̍p kià-kṳ tõ-hṳ́-kò; in-ũi hṳ́-kâi ki-hng sĩ tãng.
