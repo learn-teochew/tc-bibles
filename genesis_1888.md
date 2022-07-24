@@ -655,7 +655,7 @@ Ki̍p-kàu Si-ná ûang Àm-la-hui, Íⁿ-la̍h-sat ûang A-lia̍k, Í-la
 
 ## 15
 
-Chí chiàⁿ-kâi-sṳ̄ tsṳ-ãu, Iâ-hô-hûa tõ ĩ-siãng--tang huat-ngân, kāng A-pek-lân tàⁿ, A-pek-lân, mài-kiaⁿ; úa tsò lṳ́-kâi pó-sin-pâi, kũa lṳ́ chì-tūa kâi pò-siéⁿ.
+Chí chiàⁿ-kâi-sṳ̄ tsṳ-ãu, Iâ-hô-hûa tõ ĩ-siãng--tang huat-ngân, kāng A-pek-lân tàⁿ, A-pek-lân, mài-kiaⁿ; úa tsò lṳ́-kâi pó-sin-pâi, kũa lṳ́ chì-tōa kâi pò-siéⁿ.
 [2] A-pek-lân chiũ tàⁿ, Tsú Iâ-hô-hûa, lṳ́ àiⁿ-sṳ̀ úa tî-kâi, in-ũi úa khṳ̀-sì bô-kiáⁿ, kúan úa-kâi-ngia̍p sĩ chí-kâi Tã-má-sek Íⁿ-lĩ-a-sat?
 [3] A-pek-lân iũ tàⁿ, Āi! lṳ́ m̄-chêng sṳ̀-úa ũ chéng-tsa̍k; khak-sĩ úa che̍k-kâi ke-jîn tsò úa-kâi ãu-sṳ̂.
 <!-- 注：khak-sĩ 可能是现今汕头等地表示疑问之词 “khah-sĩ” 的源头。 -->
