@@ -11,15 +11,18 @@ metadata-fields: # explanation of fields in this YAML header
   transcription-attribution: Creator or publisher of the text transcription
 ---
 
-# Kiù-tsú Iâ-sou Ki-tok kâi Sin-ieh Tshuân-tsṳ : Chiēn-kńg Má-thài kàu Sài-thû.
+# Kiù-tsú Iâ-sou Ki-tok kâi Sin-ieh Tshuân-tsṳ : Chiēⁿ-kńg Má-thài kàu Sài-thû.
+<!--救主耶穌基督新約全書：上卷 馬太 到 使徒 -->
 
 Su-kat-lân : Tãi Eng-kok Lãi Gūa Siàⁿ-tsṳ-hũe ìn. 1892.
+<!--蘇格蘭：大英國內外聖書會印。1892。 -->
 
 Matthew to Acts : Swatow dialect.
 
 Printed for the British and Foreign Bible Society by Blackie & Son, Limited, Glasgow.
 
 # Má-thài Hok-im-tsṳ.
+<!--馬太 福音書-->
 
 ## 1
 <!-- Má-thài Hok-im-tsṳ 1-->
@@ -897,6 +900,7 @@ Tng hṳ́-che̍k-sî mn̂g-thû chiũ-kṳ̃n Iâ-sou, mn̄g--tàⁿ, Tõ thien-k
 [21] STOP pg. 35
 
 # Má-khó Hok-im-tsṳ.
+<!--馬可 福音書-->
 
 ## 1
 <!-- Má-khó Hok-im-tsṳ 1-->
@@ -1107,6 +1111,7 @@ Iâ-sou iũ tõ hái-kîⁿ khui-kháu kà-hùe. Ũ che̍k-khûn nâng chì-tsō
 [STOP pg. 69]
 
 # Sài-thû Hẽng-tn̄g.
+<!--使徒 行傳-->
 
 ## 1
 <!-- Sài-thû Hẽng-tn̄g 1-->
