@@ -505,7 +505,21 @@ Iâ-sou iũ ji̍p--khṳ̀ hũe-tn̂g; hṳ́-kò ũ che̍k-nâng chiah-chhiú p
 
 ## 4
 
-[STOP pg. 67]
+Iâ-sou iũ tõ hái-kîⁿ khui-kháu kà-hùe. Ũ che̍k-khûn nâng chì-tsōi, tsũ-chi̍p bûa--khṳ̀, tì-kàu Iâ-sou chiẽⁿ-tsûn, tsõ tõ hái--kò; che̍k-khûn chèng-nâng khùa-kṳ̃n hái, khiã tõ le̍k-tī. [2] Iâ-sou siet phì-zũ kà in ke-ke-sṳ̄, tõ kà-hùe kâi sî-hāu kāng-in tàⁿ, [3] Nín tie̍h thiaⁿ: Ũ iā-chéng kâi nâng tshut--khṳ̀ iā-chéng: [4] tú-ngõ tõ-iā kâi sî-hāu, ũ-kâi ka-lau̍h tõ lōu-kîⁿ, pue-chiáu kàu chiũ chĩn-chia̍h--khṳ̀. [5] Iā ũ pa̍t-kâi ka-lau̍h tõ chie̍h-pûaⁿ-téng kâi tī, tõ-hṳ́-kò thôu bô-tsōi; in-ũi thôu m̄-chhim sûi-sî chiũ huat: [6] ji̍t che̍k-ē chiẽⁿ, chiũ pha̍k-tiāu; in-ũi bô-kṳn chiũ ta--khṳ̀. [7] Ũ pa̍t-kâi ka-lau̍h tõ chhì-phè--tang, chhì-phè huat--khí-lâi chia-tiāu i, chiũ bõi kit-si̍t. [8] Iā ũ pa̍t-kâi ka-lau̍h tõ hó kâi thôu-tī, chiũ kit-si̍t, sĩ huat-khí-lâi chiũ chiām-chiām tūa, chiũ ũ kit-si̍t saⁿ-tsa̍p-pũe, la̍k-tsa̍p-pũe, che̍k-peh-pũe. [9] Iũ tàⁿ, Sûi tî-tîang ũ hĩⁿ hó-thiaⁿ, chiũ tie̍h-thiaⁿ.
+
+[10] Iâ-sou to̍k-tõ kâi sî-hāu, kṳn-tùe kâi nâng kũa tsa̍p-jī mn̂g-thû mn̄g I chiàⁿ-kâi phì-zũ kâi ì-sṳ̀. [11] Iâ-sou kāng-in tàⁿ, Siãng-tì kok kâi àu-biāu chiũ pun nín: zûi-to̍k tõ-gūa kâi nâng, kak-sṳ̄ chiũ-sĩ ēng-tsò phì-zũ: [12] sái in thóiⁿ, thóiⁿ bô-kìⁿ, thiaⁿ, thiaⁿ bô-mêng; khióng-ùi in huán-hùe tit--tie̍h sià-mién.
+
+[13] Iũ kāng-in tàⁿ, Chí-kâi phì-zũ nín sĩ m̄-hiáu, mé? tsãi-tit õi-hiáu tsùaⁿ-kâi phì-zũ? [14] Tõ pùa-chéng kâi nâng chiũ-sĩ pùa-tãu. [15] Hṳ́-khí ũ tãu pùa tõ lõu-kîⁿ kâi, chiũ-sĩ nâng thiaⁿ-tãu, Sat-tãn sûi-chiet chiũ kàu, chhiéⁿ-tiāu in--kò só-pùa kâi tãu. [16] Hṳ́-khí iā tõ chie̍h-pûaⁿ-téng kâi tī, chiũ-sĩ nâng thiaⁿ-tãu sûi-chiet chiũ huaⁿ-hí na̍p-siũ; [17] nā-sĩ lãi-tói bô-kṳn, chiũ-sĩ chiãm-tshûn tiāⁿ-tiāⁿ; ki̍p-kàu ũi-tie̍h tãu khóu-lān khún-to̍k -khí--lâi; sûi-chiet chiũ that-pua̍h. [18] Ũ che̍k-khí-nâng tǹg-zû iā tõ chhì-phè--kâi; [19] in sĩ thiaⁿ-kùe-tãu, nā-sĩ chí sì--kan kâi jiáu-tsa̍p, tshâi-mue̍h kâi hun-mî, kũa pa̍t-mue̍h kâi tham-io̍k, ji̍p--lâi, chia-tiāu tãu, i chiũ bõi kit-sit. [20] Hṳ́-khí iā tõ hó kâi thôu-tī kâi; chiũ-sĩ nâng thiaⁿ-tãu, na̍p-siũ, chiũ kit-sit, ũ saⁿ-tsa̍p-pũe, la̍k-tsa̍p-pũe, che̍k-peh-pũe.
+
+[21] Iâ-sou iũ tùi-in tàⁿ, Nâng khiâ teng-húe kàu--lâi, khá-sĩ àiⁿ-pàng tõ táu-ẽ, ho̍k-sĩ tshn̂g-ẽ, khá-m̄-sĩ pái-pàng thâi-téng, né [22] In-ũi bô-ũ tshâng-khǹg kâi sṳ̄ m̄ àiⁿ hiéⁿ-mˆńg; iā bô-ũ àm-chẽⁿ kâi sṳ̄ m̄ àiⁿ tshut-hīn. [23] Iā-sĩ ũ hĩⁿ hó-thiaⁿ chiũ tie̍h-thiaⁿ.
+
+[24] Iũ kāng-in tàⁿ, Nín só-thiaⁿ kâi tie̍h kṳ́-sín: nín ēng sĩ-mih-tōu niêⁿ-pun nâng, chiũ àiⁿ chiang chí-kâi tōu lâi-niêⁿ-pun nín: iā pit-tiāⁿ thiⁿ-ke pun nín. [25] Uân-khî ũ--kâi nâng, pit-tiāⁿ sṳ̀-pun i: bô-ũ--kâi, liên-kũa i só-ũ--kâi iā pit-tiāⁿ to̍h-tńg--lâi.
+
+[26] Iũ tàⁿ, Siãng-tì kok chhin-chhiẽⁿ nâng iā-chéng tõ tī; [27] mê khṳ̀-u̍t, ji̍t tsáu-khí, chéng-chí huat-khí-lâi chiãm-chiãm tūa, i m̄-tsai tsò-nî õi. [28] Tī tsṳ̃-jiên seⁿ mue̍h-súaⁿ; khí-thâu huat-miâu, ãu thòu-sūi, ki̍p-ãu sūi chiũ sêng-lia̍p. [29] Kàu se̍k--liáu, i chiũ sái liâm-to, in-ũi siu-tang kâi sî-hāu kàu--liáu.
+
+[30] Iâ-sou iũ tàⁿ, Nán tie̍h chiang sĩ-mih-kâi lâi pí Siãng-tì kok? tie̍h ēng sĩ-mih phì-zũ lâi piáu-mêng? [31] Sĩ chhin-chhiẽⁿ che̍k-lia̍p kài-lua̍h-chí, iā lo̍h-tī, sui--sĩ sòi kùe tī-chiēⁿ peh-iēⁿ chéng-chí, [32] nā-sĩ íⁿ-keng iā--lo̍h-khṳ̀ chiũ huat-khí, tūa kùe kak-iēⁿ kâi tshài, iũ khui tūa-ki; thiⁿ-tang kâi chiáu hó-hiah tõ i ìm-ẽ.
+
+
 
 # Sài-thû Hẽng-tn̄g.
 
