@@ -5,6 +5,7 @@ Sùaⁿ-thâu: Lói-pài-tn̂g, Hông-soh-hṳn ìn. 1895.
 # Soiⁿ-tsai-nâng Hap-ki kâi tsṳ.
 
 ## 1
+<!-- Soiⁿ-tsai-nâng Hap-ki kâi tsṳ 1-->
 
 Tã-lī-u uâng jī nîⁿ, la̍k gue̍h, chhiu-it ji̍t, Iâ-hô-hûa kâi ūe thoh tõ soiⁿ-tsai nâng Hap-ki kâi chhiú, lâi thuân-pun Iû-tã kâi mîn-chiáng, chiũ-sĩ Siet-thiet kâi kiáⁿ Só-lô-pa-pek; kũa chì-si-chiáng, chiũ-sĩ Iak-sat-tap kâi kiáⁿ Iak-su-a, tàⁿ, [2] Buān-khûn kâi Tsú Iâ-hô-hûa chièⁿ-seⁿ tàⁿ; Chí-kâi peh-sèⁿ sĩ tàⁿ, Tie̍h-lâi kâi sî-hāu būe-kàu, chiũ-sĩ Iâ-hô-hûa kâi tshù tie̍h kiẽn-khí kâi sî-hāu. [3] Iâ-hô-hûa kâi ūe chiũ thoh tõ soiⁿ-tsai nâng Hap-ki kâi chhiú, tàⁿ.
 
@@ -19,6 +20,7 @@ Tã-lī-u uâng jī nîⁿ, la̍k gue̍h, chhiu-it ji̍t, Iâ-hô-hûa kâi ūe 
 [14] Iâ-hô-hûa iā chiũ kiah-chhéⁿ Iû-tã kâi mîn-chiáng, chiũ-sĩ Siet-thiet kâi kiáⁿ, Só-lô-pa-pek kâi sim-sîn, kũa chì-si-chiáng Iak-su-a, chiũ-sĩ Iak-sat-tap kâi kiáⁿ, kâi sim-sîn, kũa só-tshûn kâi chèng peh-sèⁿ kâi sim-sîn; in chiũ lâi, kũa tsò-kang tõ in-kâi Siãng-tì, chiũ-sĩ buān-khûn kâi Tsú Iâ-hô-hûa, kâi tshù, [15] chiũ-sĩ tõ Tã-lĩ-u uâng jī nîⁿ, la̍k gue̍h, jī-tsa̍p-sì ji̍t.
 
 ## 2
+<!-- Soiⁿ-tsai-nâng Hap-ki kâi tsṳ 2-->
 
 Chhit gue̍h, jī-tsa̍p-it ji̍t, ũ Iâ-hô-hûa kâi ūe thoh tõ soiⁿ-tsai nâng Hap-ki kâi chhiú, tàⁿ, [2] Taⁿ tie̍h tùi Iû-tã kâi mîn-chiáng, chiũ-sĩ Siet-thiet kâi kiáⁿ Só-lô-pak-pek; kũa tùi chì-si-chiáng Iak-su-a, chiũ-sĩ Iak-sat-tap kâi kiáⁿ; kũa tùi só-tshûn kâi peh-sèⁿ, tàⁿ,
 
@@ -41,6 +43,7 @@ Hap-ki Tsong.
 # Soiⁿ-tsai-nâng Sat-ka-lĩ-a kâi tsṳ.
 
 ## 1
+<!-- Soiⁿ-tsai-nâng Sat-ka-lĩ-a kâi tsṳ 1-->
 
 Tã-lĩ-u jī nîⁿ, poih gue̍h, Iâ-hô-hûa kâi ūe thoh soiⁿ-tsai-nâng Sat-ka-lī-a, sĩ Ĩ-to kâi sun, sĩ Pí-lí-kia kâi kiáⁿ, tàⁿ, [2] Iâ-hô-hûa tūa huat-náu nín-kâi lie̍t-tsóu. [3] Kù-tshṳ́ lṳ́ tie̍h tùi-in tàⁿ, Buān-khûn kâi Tsú Iâ-hô-hûa chièⁿ-seⁿ tàⁿ: Nín tie̍h kui-tńg tõ uá, chí-kâi sĩ buān-khûn kâi Tsú Iâ-hô-hûa só-tàⁿ; uá chiũ pit àiⁿ kui-tńg tõ nín; sĩ buān-khûn kâi Tsú Iâ-hô-hûa só-tàⁿ. [4] Nín mài chhin-chhiẽⁿ nín-kâi lie̍t-tsóu, soiⁿ-tsá kâi soiⁿ-tsai-nâng ũ tùi-in u-hàm, tàⁿ, Buān-khûn kâi Tsú Iâ-hô-hûa chièⁿ-seⁿ tàⁿ, Nín taⁿ tie̍h lī nín-kâi ak-lōu kũa nín-kâi ak-sṳ̄ lâi kui-tńg: tãn-sĩ in m̄-thiaⁿ, iā m̄ thiaⁿ-hiàng tõ uá, chí-kâi sĩ Iâ-hô-hûa só-tàⁿ. [5] Nín-kâi lie̍t-tsóu taⁿ tõ-tî-kò né? kũa chèng soiⁿ-tsai-nâng, in khá-õi seⁿ-tshûn kàu ióng-sì, mé? [6] Nā-sĩ uá-kâi ūe, kũa uá-kâi kài-lu̍t, uá só-mẽng uá-kâi chèng-po̍k, chiũ-sĩ chèng soiⁿ-tsai nâng, chí-kâi khá-sĩ bô tui-ki̍p--tie̍h nín-kâi lie̍t-tsóu né? in chiũ kui-tńg, tàⁿ, Chhin-chhiẽⁿ buān-khûn kâi sṳ̄, chiè ún só-kiâⁿ kâi lōu, kũa chiè ún só-tsò kâi sṳ̄, I kúaⁿ-ũ chièⁿ-seⁿ thãi ún.
 
@@ -55,12 +58,14 @@ Buān-khûn kâi Tsú Iâ-hô-hûa chièⁿ-seⁿ tàⁿ, Uá ũi-tie̍h Iâ-lũ
 [18] Uá iũ tièⁿ-phû uá-ma̍k chiũ thóiⁿ, thói-kìⁿ sì-ki kak. [19] Uá chiũ mn̄g hṳ́-kâi kāng-uá tàⁿ-ūe kâi sài-chiá, tàⁿ, Chí tsùaⁿ-kâi sĩ sĩ-mih kâi né? I chiũ tùi-uá tàⁿ, Chí tsùaⁿ-kâi kak chiũ-sĩ ũ hun-sùaⁿ Iû-tã, Íⁿ-sek-lie̍t, kũa Iâ-lũ-sat-léng, kâi. [20] Iâ-hô-hûa chiũ pun uá thóiⁿ sì-kâi sai-pẽ. [21] Uá chiũ tàⁿ, Chí tsùaⁿ-kâi sĩ lâi-tsò sĩ-mih sṳ̄ né? I chiũ tàⁿ, Chí tsùaⁿ-kâi kak sĩ ũ hun-sùaⁿ Iû-tã kâi, sái-kàu bô-nâng kṳ́-khí thâu; nā-sĩ chí tsùaⁿ-kâi sai-pẽ sĩ lâi heh-kiaⁿ in, lâi ka̍k-lo̍h lie̍t-pang kâi kak, chiũ-sĩ hṳ́-hùaⁿ ũ tùi Iû-tã tī kṳ́-khí in-kâi kak lâi hun-sùaⁿ i chiá.
 
 ## 2
+<!-- Soiⁿ-tsai-nâng Sat-ka-lĩ-a kâi tsṳ 2-->
 
 Uá iũ tièⁿ-phû uá-ma̍k chiũ thóiⁿ, thóiⁿ-kìⁿ che̍k-kâi nâng, chhiú--tang khie̍h niêⁿ-tī kâi sîn-soh. [2] Uá chiũ tàⁿ, Lṳ́ àiⁿ-khṳ̀ tî-kò? I tùi-uá tàⁿ, Aìⁿ-niêⁿ Iâ-lũ-sat-léng, lâi-thóiⁿ ũ jie̍h-khuah, ũ jie̍h-tn̂g. [3] Iáu, kāng-uá tàⁿ-ūe kâi sài-chiá chiũ tshut--khṳ̀, iā ũ ke che̍k-kâi sài-chiá tshut--lâi ngêng i, [4] chiũ kāng-i tàⁿ, Tie̍h tsáu-khṳ̀ kāng chí-kâi siàu-nîⁿ-nâng tàⁿ-ūe, tàⁿ,
 
 Chiang-lâi nâng àiⁿ khiã-khí Iâ-lũ-sat-léng, chhin-chhiẽⁿ tõ hieⁿ-tshng hièⁿ-seⁿ, ũi-tie̍h khî-tang kâi nâng siàu kũa cheng-seⁿ chièⁿ-tsōi. [5] In-ũi uá àiⁿ tsò i sì-chiu-ûi kâi hú-chhiêⁿ, uá iā àiⁿ tsò i lãi--tang kâi iông-kuang, sĩ Iâ-hô-hûa só-tàⁿ. [6] Iâ-hô-hûa tàⁿ, Hói! hói! tie̍h tshông-tõ pak-hng tsáu--tshut-lâi, in-ũi uá ũ hun-sùaⁿ nín chhin-chhiẽⁿ thiⁿ-tang kâi sì-huang, sĩ Iâ-hô-hûa só-tàⁿ. [7] Hói! Sûn-siâⁿ a! lṳ́ kāng Pa-pí-lûn kâi nńg-tsṳ́ tsò-pû khiã-khí kâi, lṳ́ tie̍h tô-tsáu. [8] In-ũi buān-khûn kâi Tsú Iâ-hô-hûa chièⁿ-seⁿ tàⁿ, Sĩ àiⁿ tit iông-kuang I chiàⁿ-ũ sái uá khṳ̀-kàu chhiéⁿ nín hṳ́ hùaⁿ-kâi lie̍t-pang; in-ũi huâm tî-tiâng tiaⁿ-thãng--tie̍h nín, chiũ-sĩ tiaⁿ-thãng--tie̍h i-kâi ma̍k-jîn. [9] In-ũi uá àiⁿ ia̍h-chhiú tõ in tsṳ-chiēⁿ, in chiũ pit pun tsá ho̍k-sṳ̃ in kâi nâng só-chhiéⁿ: nín chiũ tsai sĩ buān-khûn kâi Tsú Iâ-hô-hûa ũ-sái uá. [10] Iâ-hô-hûa tàⁿ, Sûn kâi nńg-tsṳ́ a, lṳ́ tie̍h chhiàng-ko hí-la̍k; in-ũi uá lâi, iũ àiⁿ khiã-khí tõ lṳ́--tang. [11] Hṳ́-ji̍t iā pit-ũ ke-ke lie̍t-pang lâi tâu-hâng Iâ-hô-hûa, chiũ tsò uá-kâi peh-sèⁿ: uá iā pit àiⁿ khiã-khí tõ lṳ́--tang, lṳ́ chiũ tsai sĩ buān-khûn kâi Tsú Iâ-hô-hûa ũ-sái uá lâi lṳ́-kò. [12] Iâ-hô-hûa iā pit àiⁿ chiang Iû-tã tõ siàⁿ-tī tsṳ-tang tsò I hūn-tsôiⁿ kâi ngia̍p, iā pit tsài-suán Iâ-lũ-sat-léng. [13] Nín huâm ũ hueh-ne̍k--chiá, tie̍h sok-chẽⁿ tõ Iâ-hô-hûa mīn-tsôiⁿ: uân-in I tshông-tõ I siàⁿ-kiet kâi kṳ-só tsṳ--tang ũ chhéⁿ-khí--lâi liáu.
 
 ## 3
+<!-- Soiⁿ-tsai-nâng Sat-ka-lĩ-a kâi tsṳ 3-->
 
 I chiū pun uá thóiⁿ chì-si-chiáng Iak-su-a khiā tõ Tsú kâi sài-chiá mīn-tsôiⁿ, kũa Sat-tãn khiã tõ i-kâi iũ-pôiⁿ lâi tùi-te̍k i. [2] Iâ-hô-hûa chiũ tùi Sat-tãn tàⁿ, Sat-tãn a, nguãn Iâ-hô-hûa cheh-pĩ lṳ́; chiũ-sĩ suán Iâ-lũ-sat-léng kâi Iâ-hô-hûa, nguãn I cheh-pĩ lṳ́: chí-kâi khá-m̄-sĩ che̍k-ki tshâ-chin tshông-tõ húe--tang po̍ih--tshut-lâi?
 
@@ -71,6 +76,7 @@ Lṳ́ jia̍k-sĩ kiâⁿ tõ uá-kâi lōu, iũ siú uá só hun-hù siú kâi,
 [10] Buān-khûn kâi Tsú Iâ-hô-hûa tàⁿ, Tõ hṳ́-ji̍t nín kak-nâng pit àiⁿ chhiáⁿ i-kâi tshù-piⁿ, tõ phû-thô kũa bô-hue-kúeⁿ kâi chhiū-ẽ.
 
 ## 4
+<!-- Soiⁿ-tsai-nâng Sat-ka-lĩ-a kâi tsṳ 4-->
 
 Kāng-uá tàⁿ-ūe kâi sài-chiá tsài-lâi, chiũ kiah-chhéⁿ uá, chhin-chhiẽⁿ nâng u̍t--khṳ̀ pun nâng kiah-chhéⁿ hièⁿ-seⁿ. [2] I chiũ tùi-uá tàⁿ, Lṳ́ thóiⁿ-kìⁿ sĩ-mih kâi né? Uá chiũ tàⁿ, Uá ũ thóiⁿ, thóiⁿ-kìⁿ che̍k-kâi teng-chhiū, tsn̂g-kâi sĩ kim kâi, kũa i-kâi teng-tsúaⁿ tõ i hṳ́-téng, kũa ũ chhit-kâi teng tõ i hṳ́-chiēⁿ; i hṳ́-téng kâi teng kak-kak ũ chhit-ki kńg: [3] kũa tõ hṳ́-piⁿ ũ nõ-tsâng kaⁿ-náⁿ chhiū, che̍k-tsâng tõ teng-tsúaⁿ kâi iũ-pôiⁿ, che̍k-tsâng tõ i-kâi tsó-pôiⁿ. [4] Uá chiũ tùi kāng-uá tàⁿ-ūe kâi sài-chiá tàⁿ, Uá tsú a, chí tsùaⁿ-kâi sī sī-mih kâi né? [5] Kāng-uá tàⁿ-ūe kâi sài-chiá chiũ tùi-uá tap-tàⁿ, Lṳ́ khá-m̄-tsai chí tsùaⁿ-kâi sĩ sĩ-mih kâi né? [6] Uá chiũ tàⁿ, Uá-tsú a, uá m̄-tsai. I chiũ tùi-uá tap-tàⁿ, Chí-kâi chiũ-sĩ Iâ-hô-hûa só-tàⁿ pun Só-lô-pa-pek kâi ūe, sĩ tàⁿ,
 
@@ -81,4 +87,5 @@ Buān-khûn kâi Tsú Iâ-hô-hûa tàⁿ, M̄-sĩ tshut-tõ khuân iā m̄-sĩ 
 [11] Uá chiũ tùi-i tàⁿ, Teng-chhiū tsó-iũ chí nõ-tsâng kaⁿ-náⁿ-chhiū sĩ sĩ-mih kâi né? [12] Uá tōiⁿ-jī tshṳ̀ iũ tùi-i tàⁿ, Nõ-kâi kim kńg-tshùi tshông-tõ i lãi--tang tò-tshut kim-iû, tõ i-kâi piⁿ--thâu chí nõ-ki kaⁿ-náⁿ chhiū-ki sĩ sĩ-mih kâi né? [13] I chiũ tùi-uá tàⁿ, Lṳ́ khá m̄-tsai chí nõ-kâi sĩ sĩ-mih kâi né? Uá chiũ tàⁿ, Uá-tsú, uá m̄-tsai. [14] I chiũ tàⁿ, Chí-kâi sĩ nõ-kâi tò-iû chiá, sĩ khiã tõ tshuân-tī kâi Tsú kâi phâng-piⁿ kâi.
 
 ## 5
+<!-- Soiⁿ-tsai-nâng Sat-ka-lĩ-a kâi tsṳ 5-->
 

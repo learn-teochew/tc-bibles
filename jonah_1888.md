@@ -17,6 +17,7 @@ metadata-fields: # explanation of fields in this YAML header
 Sùaⁿ-thâu: Lói-pài-tn̂g Hông-soh-hṳn ìn. 1888.
 
 ## Iak-ná tsṳ.
+<!-- Iak-ná tsṳ 1-->
 
 (1) Iâ-hô-hûa kâi ūe thoh tõ A-mí-thài kâi kiáⁿ Iak-ná, tàⁿ, (2) Tie̍h khí-sin khṳ̀ Nî-nî-mûi, hṳ́-kâi tūa-siâⁿ, lâi-tuah i; in-ũi in-kâi-ak thiaⁿ-bûn tõ uá mīn-tsôiⁿ. (3) Iak-ná chiũ khí-sin àiⁿ-tsáu khṳ̀ Tã-sit, àiⁿ tsáu-pī Iâ-hô-hûa mīn-tsôiⁿ; chiũ lo̍h-khṳ̀ Iak-phà, ngõ--tie̍h ũ chiah-tsûn àiⁿ-khṳ̀ Tã-sit: hôiⁿ i-kâi tsûn-tsou, chiũ lo̍h--khṳ̀, àiⁿ tshap in khṳ̀ Tã-sit, lâi tsáu-pī Iâ-hô-hûa mīn-tsôiⁿ.
 
@@ -35,6 +36,7 @@ Sùaⁿ-thâu: Lói-pài-tn̂g Hông-soh-hṳn ìn. 1888.
 (17) Iâ-hô-hûa chiũ ṳ̃-pĩ che̍k-búe tūa-hṳ̂ lâi-thun Iak-ná lo̍h-khṳ̀; Iak-ná tõ hṳ̂ kâi tóu-tói saⁿ-jit saⁿ-mêⁿ.
 
 ## 2
+<!-- Iak-ná tsṳ 2-->
 
 Iak-ná chiũ tshông-tõ hṳ̂ kâi tóu-tói khî-táu i-kâi Siãng-tì Iâ-hô-hûa. (2) Chiũ tàⁿ,
 
@@ -83,6 +85,7 @@ Iak-ná chiũ tshông-tõ hṳ̂ kâi tóu-tói khî-táu i-kâi Siãng-tì Iâ-
 > (10) Iâ-hô-hûa mẽng hṳ́-kâi-hṳ̂, hṳ̂ chiũ thòu-tshut Iak-ná tõ le̍k-tī.
 
 ## 3
+<!-- Iak-ná tsṳ 3-->
 
 Iâ-hô-hûa kâi ūe tsài-thoh tõ Iak-ná, tàⁿ, (2) Tie̍h khí-sin khṳ̀ Nî-nî-mûi, hṳ́-kâi tūa-siâⁿ, tùi-i thuân uá só-mẽng lṳ́ kâi ūe. (3) Iak-ná chiũ khí-sin khṳ̀ Nî-nî-mûi, zû Iâ-hô-hûa só-mẽng.
 
@@ -93,6 +96,7 @@ Chí-kâi Nî-nî-mûi sĩ chì-tūa kâi siâⁿ, tūa ũ saⁿ-ji̍t kâi lōu
 (10) Siãng-tì thóiⁿ-kìⁿ in só-tsò, in kak-kak sĩ hûe-thâu thut-lī i-kâi ak-lōu; Siãng-tì tsá só-tàⁿ àiⁿ-si-kiâⁿ tõ in kâi hũa-hāi, taⁿ siẽ-tńg chiũ bô-kiâⁿ.
 
 ## 4
+<!-- Iak-ná tsṳ 4-->
 
 Nā-sĩ Iak-ná tūa-tūa m̄-háh-ì, chiũ náu-khì. (2) I chiũ tùi Iâ-hô-hûa khî-táu, tàⁿ, Khiû Iâ-hô-hûa lṳ́, chí-kâi khá-m̄-sĩ uá tsá só-tàⁿ, chiũ-sĩ uá huân-liáu tõ uá pńg-tī hṳ́-sî? Kù-tshṳ́ uá chiàⁿ méⁿ-méⁿ tsáu àiⁿ-khṳ̀ Tã-sit: uân-khî uá tsai lṳ́ sĩ ṳn-ài kâi Siãng-tì, múaⁿ-sim sĩ liên-mién, m̄-kam huat-náu, phak-si tshṳ̂-ṳn, ē-ē siẽⁿ-tńg bô kia tsai-hũa. (3) Só-íⁿ, taⁿ, khiû Iâ-hô-hûa, uá-kâi seⁿ-miāⁿ kāng-uá thó-tńg, in-ũi kèng-hó tie̍h-sí mài-seⁿ. (4) Iâ-hô-hûa chiũ tàⁿ, Lṳ́ khá-hó náu-khì, mé?
 
