@@ -6,6 +6,8 @@ Visit our main [Learn Teochew](https://learn-teochew.github.io) website for more
 
 Please [contact me](https://docs.google.com/forms/d/e/1FAIpQLSfuLo78EgRtgVeoEb1zTXZOtb0W0cBWdrNu46CYtkLaVwhlZQ/viewform) (or create an issue on GitHub) if you know of any other sources!
 
+Cross reference with: https://archive.org/details/translationsof00hyke/page/32/mode/2up?view=theater
+
 ## License
 
 To the best of our knowledge, the original works listed below are in the public domain. However, the digitizations (scans, digital images) may be under copyright; please consult individual webpages for the relevant terms. 
@@ -39,13 +41,14 @@ Jonah • 約拿書
 * *Kū-ieh Iak-ná tsṳ : e̍k tsò Tiê-chiu Pe̍h-ūe.* Sùan-thâu : Lói-pài-tn̂g Hông-soh-hṳn ìn. 1888. Transliterated by John Campbell Gibson. (PUJ romanization)
   * [Harvard Yenching Library Ta 1977.492 CW1888](https://nrs.lib.harvard.edu/urn-3:fhcl:32647785)
   * [FHL.net (digitized by Dr Kenny Wang, original in National Library of Australia)](https://bible.fhl.net/gbdoc/ob/nob.html?book=204)
-  * [Text transcription](./jonah_1888.md)
+  * [Transcription on Minnan Wikisource](https://zh-min-nan.wikisource.org/wiki/K%C5%AB-ieh_Iak-n%C3%A1_ts%E1%B9%B3_e%CC%8Dk_ts%C3%B2_Ti%C3%AA-chiu_Pe%CC%8Dh-%C5%ABe)
 
 
 Haggai, Zechariah, Malachi • 哈該書、撒迦利亞書、瑪拉基書
 
 * *Kū-ieh Soiⁿ-tsai Hap-ki, Sat-ka-lì-a, kũa Má-lah-ki, Saⁿ-nâng kâi tsṳ. : e̍k tsò Tîe-chiu Pe̍h-ūe.* Sùaⁿ-thâu : Lói-pai-tn̂g, Hông-soh-hṳn ìn. 1895. [Printed for the British and Foreign Bible Society at the English Presbyterian Mission Press. Swatow 1895.] Tr. John C. Gibson. (PUJ romanization)
   * [Harvard Yenching Library TA 1977.497 CW1895](https://nrs.lib.harvard.edu/urn-3:fhcl:32648251)
+  * [Transcription on Minnan Wikisource](https://zh-min-nan.wikisource.org/wiki/K%C5%AB-ieh_Soi%E2%81%BF-tsai_Hap-ki,_Sat-ka-l%C4%A9-a,_k%C5%A9a_M%C3%A1-la%CC%8Dh-ki,_Sa%E2%81%BF-n%C3%A2ng_k%C3%A2i_ts%E1%B9%B3_e%CC%8Dk_ts%C3%B2_T%C3%AEe-chiu_Pe%CC%8Dh-%C5%ABe)
 
 
 
@@ -61,7 +64,8 @@ Gospels to Acts • 四福音書、使徒行傳
 
 * *Kiù-tsú Iâ-sou Ki-tok kâi Sin-ieh Tshuân-tsṳ : Chiēⁿ-kńg Má-thài kàu Sài-thû.* Su-kat-lân : Tāi Eng-kok Lāi Gūa Siàⁿ-tsṳ-hūe ìn. 1892. (PUJ romanization)
   * [FHL.net (originally digitized by Google)](https://bible.fhl.net/gbdoc/ob/nob.html?book=145);
-  * [Google Books](https://books.google.de/books?vid=HARVARD:HWPLVJ), original in Harvard Widener Library (offsite 1285.19)
+  * [Google Books](https://books.google.de/books?vid=HARVARD:HWPLVJ), original in [Harvard Widener Library](http://id.lib.harvard.edu/alma/990028930770203941/catalog) (offsite 1285.19)
+  * [Transcription on Minnan Wikisource - incomplete](https://zh-min-nan.wikisource.org/wiki/Ki%C3%B9_Ts%C3%BA_I%C3%A2_Sou_Ki_Tok_K%C3%A2i_Sin_Ieh_Tshu%C3%A2n_Ts%E1%B9%B3_Chi%C4%93%E2%81%BF_K%C5%84g_M%C3%A1_Th%C3%A0i_K%C3%A0u_S%C3%A0i_Th%C3%BB)
 
 
 James • 雅各書
