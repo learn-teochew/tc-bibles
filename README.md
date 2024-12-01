@@ -6,6 +6,8 @@ Visit our main [Learn Teochew](https://learn-teochew.github.io) website for more
 
 Please [contact me](https://docs.google.com/forms/d/e/1FAIpQLSfuLo78EgRtgVeoEb1zTXZOtb0W0cBWdrNu46CYtkLaVwhlZQ/viewform) (or create an issue on GitHub) if you know of any other sources!
 
+Refer to [道在神州](https://daozaishenzhou.wordpress.com/2020/12/02/fangyan/) by Dr Kenny Wang for further information about historical Chinese Bible versions.
+
 Cross reference with: https://archive.org/details/translationsof00hyke/page/32/mode/2up?view=theater
 
 ## License
