@@ -99,6 +99,7 @@ Text transcriptions in this repository are licensed under [CC BY 4.0](https://cr
 
 * *Sin-Ieh Iá-kok Tsṳ-sìn : e̍k-tsò Tiê-chiu Pe̍h-ūe.* Sùaⁿ-thâu : Lói-pai-tn̂g, Hông-soh-hṳn ìn. W Duffus & JC Gibson, BFBS, 1888. (PUJ romanization)
   * [FHL.net (digitized by Dr Kenny Wang, original in National Library of Australia)](https://bible.fhl.net/gbdoc/ob/nob.html?book=205)
+  * [Transcription on Minnan Wikisource](https://zh-min-nan.wikisource.org/wiki/Sin-ieh_I%C3%A1-kok_Ts%E1%B9%B3-s%C3%ACn_e%CC%8Dk-ts%C3%B2_Ti%C3%AA-chiu_Pe%CC%8Dh-u%C4%93)
 
 
 ### Philippians to Philemon • 腓立比書 至 腓利門書
